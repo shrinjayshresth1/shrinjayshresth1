@@ -14,7 +14,7 @@
 
 - 📄 Know about my experiences [https://github.com/shrinjayshresth1/Resume](https://github.com/shrinjayshresth1/Resume)
 
-- ⚡ Fun fact **I think i can make your laugh and learn ;)**
+- ⚡ Fun fact **I think i can make you laugh and learn ;)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
